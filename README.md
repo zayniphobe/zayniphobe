@@ -1,8 +1,8 @@
-[![MasterHead](https://github.com/zaynilol/zaynilol/blob/main/8f0d97a9-0006-4745-8cef-300551f0b46f_list_heer_template_o1___marceline_by_heavydirtysui_dgy795p-fullview.jpg)](https://github.com/zaynilol)
+[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/8f0d97a9-0006-4745-8cef-300551f0b46f_list_heer_template_o1___marceline_by_heavydirtysui_dgy795p-fullview.jpg)](https://github.com/zaynilol)
 
 ## Heyhey zayni here :o
 
-I love omori!    <img align="right" alt="Coding" width="100" src="https://github.com/zaynilol/zaynilol/blob/main/xv8zchgai7d71.gif">    
+I love omori!    <img align="right" alt="Coding" width="100" src="https://github.com/zayniphobe/zayniphobe/blob/main/xv8zchgai7d71.gif">    
 
 I make stuff sometimes. I'll try to put it all here :P
 
