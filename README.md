@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://github.com/zayniphobe">
-    <img src="https://raw.githubusercontent.com/zayniphobe/zayniphobe/main/pKitty.jpg" width="100%" alt="MasterHead"/>
+    <img src="https://raw.githubusercontent.com/zayniphobe/zayniphobe/main/headerkitty.jpg" width="100%" alt="MasterHead"/>
   </a>
 </p>
 
