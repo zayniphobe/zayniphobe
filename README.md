@@ -1,4 +1,8 @@
-[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/pKitty.jpg)](https://github.com/zayniphobe)
+<p align="center">
+  <a href="https://github.com/zayniphobe">
+    <img src="https://raw.githubusercontent.com/zayniphobe/zayniphobe/main/pKitty.jpg" width="100%" alt="MasterHead"/>
+  </a>
+</p>
 
 ## Heyhey zayni here :o
 
