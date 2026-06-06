@@ -1,4 +1,4 @@
-[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/punpun.jpg)](https://github.com/zayniphobe)
+[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/pKitty.jpg)](https://github.com/zayniphobe)
 
 ## Heyhey zayni here :o
 
