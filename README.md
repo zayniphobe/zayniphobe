@@ -1,4 +1,4 @@
-[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/8f0d97a9-0006-4745-8cef-300551f0b46f_list_heer_template_o1___marceline_by_heavydirtysui_dgy795p-fullview.jpg)](https://github.com/zaynilol)
+[![MasterHead](https://github.com/zayniphobe/zayniphobe/blob/main/punpun.jpg)](https://github.com/zayniphobe)
 
 ## Heyhey zayni here :o
 
